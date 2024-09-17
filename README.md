@@ -32,3 +32,5 @@ Yo, welcome to my own page, it's a huge pleasure to have you here!! Profile excl
    - **I KNEW MY WORLD'S BEST FRIEND:** Again about her, I knew that lovely girl on 9 July 2023, as expected, under Nebulous.io, so that year was been my REAL best in all my life – surely 2024, 2025, 2026 and others will ALSO be, while she exists in my life, ilysm, Nicole <3.
 
 That's all I would like to share about me, but FOR NOW though. Thanks for reading until reach here <3
+
+(sou eu Brunonebuu) caramba 🤣, nn sabia q vc era brasileiro, que a aplicativo vc usa como comunicação
